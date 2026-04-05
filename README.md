@@ -4,7 +4,6 @@
 ![221px-The_Thumb_Apprentice_-_Lucio_Idle_Sprite](https://github.com/user-attachments/assets/02a4f09f-2027-40a2-92dc-319fdaa4d3e3)
 ![170px-NetzachCombatIdle](https://github.com/user-attachments/assets/5398a734-3283-4736-8185-e9e4db3b272b)
 <img width="164" height="280" alt="364px-Cheery_Chickies_Sinnerling_Sinclair_Idle_Sprite" src="https://github.com/user-attachments/assets/f213ec58-7e26-414a-8b46-dc9fb2865da1" />
-<img width="222" height="326" alt="The_Thumb_Apprentice_-_Lucio_Evade_Sprite" src="https://github.com/user-attachments/assets/a72b57c3-05f4-416d-9f1e-2000e840c4d1" />
 
 
 <p align="center"> hi!! you can call you noah or sinclair, i have been playing pt for a few years but i am new to github so i apologize, this is bad</p>
