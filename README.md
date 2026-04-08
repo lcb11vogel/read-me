@@ -14,6 +14,8 @@
 
 <p align="center"> if you wanna know more about me check out my strawpage!!(fandoms, about me, irl pics, art, etc..) https://wowiethatscrazy.straw.page </p>
 
+<p align="center"> <sub> you should totally send me smthing on my strawpage... i love getting msgs/drawings and i can also do drawing requests </sub> </p>
+
 <p align="center"> my bestfriend and i also made a project moon pony town server that you should totally join :D https://discord.gg/bXDEfMfP </p>
 
 <p align="center">
