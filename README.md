@@ -16,7 +16,7 @@
 
 <p align="center"> <sub> you should totally send me smthing on my strawpage... i love getting msgs/drawings and i can also do drawing requests </sub> </p>
 
-<p align="center"> my bestfriend and i also made a project moon pony town server that you should totally join :D https://discord.gg/bXDEfMfP </p>
+<p align="center"> my bestfriend and i also made a project moon pony town server that you should totally join :D https://discord.gg/nPYChyzJ (if this isnt working dm wowiethatscrazy on discord) </p>
 
 <p align="center">
   <img width="527" height="193" alt="Sinclair_Signature" src="https://github.com/user-attachments/assets/49d6fd80-4623-40a0-820d-20bbe4f588d1" />
